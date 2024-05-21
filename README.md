@@ -4,7 +4,7 @@
 - 💞️ I’m looking for an Internship...
 - 📫 Reach me @ sourishcidambaram@gmail.com
 - ⚡ Fun fact: Work Hard 
--  Aim: Successful Business and Philanthropist
+-  Aim: Successful Business Tycoon and Philanthropist
 
 <!---
 Sourish-Cidambaram007-BG/Sourish-Cidambaram007-BG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
